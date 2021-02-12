@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Welcome to the World, Adora!"
+title: "Welcome to the World, Adora (1 week in review)!"
 date: 2021-02-04
 ---
 
