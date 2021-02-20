@@ -27,7 +27,7 @@ url: "https://ochsners.us/adora" # the base hostname & protocol for your site, e
 
 # Build settings
 theme: minima
-plugins:
+plugins_dir:
   - jekyll-feed
 
 # Exclude from processing.
