@@ -1,0 +1,4 @@
+git clone git@github.com:mochsner/adora.git git remote add deploy
+root@adora.ochsners.us:repos/adora.git git remote set-url --add --push
+origin git@github.com:mochsner/adora.git git remote set-url --add --push
+origin root@adora.ochsners.us:repos/adora.git
