@@ -23,7 +23,7 @@ After a few hours of prep, and operation, Adora Lillian Ochsner was finaly born 
 ![Mom and Dad Post-Op](/assets/img/adora/2021-02-05-22-12-13.png)
 ![Mom's First Hold of Adora!](/assets/img/adora/2021-02-05-22-13-24.png)
 
-From the first day, we were absolutely in love. She was a healthy weight at 8 lbs 10 ounces (21 inches long), and didn't cry nearly as much as we'd thought. We had to wear masks, but I like to think Adora liked us a bit too :smiley: 
+From the first day, we were absolutely in love. She was a healthy weight at 8 lbs 10 ounces (20 inches long), and didn't cry nearly as much as we'd thought. We had to wear masks, but I like to think Adora liked us a bit too :smiley: 
 ![Mom Holding Adora Skin to Skin](/assets/img/adora/2021-02-05-22-16-13.png) 
 ![Dad Holding Adora Post-Op](/assets/img/adora/2021-02-05-22-17-21.png)
 ![Dad Holding Adora Post-Op #2](/assets/img/adora/2021-02-05-22-17-38.png)
