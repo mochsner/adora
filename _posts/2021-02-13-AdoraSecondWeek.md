@@ -147,9 +147,9 @@ You in your changing station..
 ..where you often fell asleep :)
 ![](/assets/img/2021-02-13-14-51-39.png)
 
-I hope you made mama yawn, here!
-![](/assets/img/2021-02-13-14-52-13.png)
-![](/assets/img/2021-02-13-14-52-21.png)
+<!--I hope you made mama yawn, here!-->
+![](assets/img/2021-02-13-14-52-13.png)
+![](assets/img/2021-02-13-14-52-21.png)
 
 Around 7 PM, getting you clothes for the overnight shift :)
 ![](/assets/img/2021-02-13-14-52-44.png)
@@ -173,7 +173,8 @@ Then, all of a sudden, in the middle of the day after lunch... I was NOTIFIED TH
 
 Of course, some cute pictures had to follow...
 ![](/assets/img/2021-02-13-17-50-29.png)
-![](/assets/img/2021-02-13-17-50-37.png)
+![](/assets/img/2021-02-24-12-28-34.png)
+![](assets/img/2021-02-13-17-50-37.png)
 ![](/assets/img/2021-02-13-17-50-44.png)
 ![](/assets/img/2021-02-13-17-50-51.png)
 ![](/assets/img/2021-02-13-17-50-58.png)
