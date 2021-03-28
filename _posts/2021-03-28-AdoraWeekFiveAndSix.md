@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Weeks 5 (Photoshoot) and 6 (Reflux)"
-date: 2021-03-28
+date: 2021-03-27
 ---
 
 Overall, week 5 and 6 were... tough, but rewarding. It was full of cuddles, family time, and LOTS of crying. I mean like constantly, because turns out I have reflux (we now believe it's likely due to a dairy intolerance of some sorts... I made mom quit dairy, or, uh, heavily encouraged her to).
