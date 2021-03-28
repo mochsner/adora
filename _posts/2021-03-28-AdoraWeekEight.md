@@ -18,18 +18,23 @@ In terms of our favorite thing (pictures), here's a big 'ol photo dump of the li
 
 
 ### Sunday 3/21
+
 Sunday funday...
+
 ![](/assets/img/2021-03-28-00-19-12.png)
 
-
 ### Work week (woohoo)
+
 GiGI to the rescue
+
 ![](/assets/img/2021-03-28-00-19-38.png)
 
 Ann-Marie (mama)'s face when she found out her customer delayed their go-live again:
+
 ![](/assets/img/2021-03-28-00-20-00.png)
 
 Afternoon fun in the sun
+
 ![](/assets/img/2021-03-28-00-20-35.png)
 ![](/assets/img/2021-03-28-00-20-45.png)
 ![](/assets/img/2021-03-28-00-20-56.png)
@@ -38,29 +43,39 @@ Afternoon fun in the sun
 ![](/assets/img/2021-03-28-00-21-37.png)
 
 Late night sleepin with daddio
+
 ![](/assets/img/2021-03-28-00-22-03.png)
 
 #### Tuesday
+
 The best baby workout, guaranteed. Maybe excepting crying.
+
 ![](/assets/img/2021-03-28-00-22-46.png)
 ![](/assets/img/2021-03-28-00-23-07.png)
+
 Man this channel is top tier
+
 ![](/assets/img/2021-03-28-00-23-01.png)
+
 You seein this???!
+
 ![](/assets/img/2021-03-28-00-23-23.png)
 [video](https://photos.app.goo.gl/Q8PUSXex4aWTNXXM8)
 ![](/assets/img/2021-03-28-00-24-26.png)
 
 Gigi and lil
+
 ![](/assets/img/2021-03-28-00-25-01.png)
+
 Super mama
+
 ![](/assets/img/2021-03-28-00-25-39.png)
 
 Staring contest with Daddio after work
+
 ![](/assets/img/2021-03-28-00-26-00.png)
 ![](/assets/img/2021-03-28-00-26-08.png)
 ![](/assets/img/2021-03-28-00-26-15.png)
-
 
 #### Wednesday
 
