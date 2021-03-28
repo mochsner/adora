@@ -65,13 +65,17 @@ Staring contest with Daddio after work
 #### Wednesday
 
 Early morning daze with Mama
+
 ![](/assets/img/2021-03-28-00-26-44.png)
+
 ![](/assets/img/2021-03-28-00-26-58.png)
 
 Real wake time... CHAMPION!!!!
+
 ![](/assets/img/2021-03-28-00-27-24.png)
 
 Hm yes I feel like I've been here before. Call me a veteran
+
 ![](/assets/img/2021-03-28-00-27-57.png)
 
 Me at my favorite place (where I don't cry)
@@ -81,65 +85,80 @@ Me at my favorite place (where I don't cry)
 ![](/assets/img/2021-03-28-00-28-44.png)
 
 Watching my favorite fish tank
+
 ![](/assets/img/2021-03-28-00-29-04.png)
 
 #### Thursday
 
 Hmmm tummy time at 2 PM? Okay I can try
+
 ![](/assets/img/2021-03-28-00-29-30.png)
 
 What's that? A cell phone?!
+
 ![](/assets/img/2021-03-28-00-29-44.png)
 
 You look familiar, screen.
+
 ![](/assets/img/2021-03-28-00-29-58.png)
 
 Look at me
+
 ![](/assets/img/2021-03-28-00-30-19.png)
 
 Blargh
+
 ![](/assets/img/2021-03-28-00-30-33.png)
 
 Ok I crash now
+
 ![](/assets/img/2021-03-28-00-30-51.png)
 
 
 #### Friday (8 week mark) - 3/28!!
 
 Breakfast of champions
+
 ![](/assets/img/2021-03-28-00-32-16.png)
 
 It's too early for this
+
 ![](/assets/img/2021-03-28-00-32-28.png)
 
 Still too early
+
 ![](/assets/img/2021-03-28-00-32-41.png)
 
 
 Alright 10 AM is more my style
+
 ![](/assets/img/2021-03-28-00-32-57.png)
+
 [wigglin' at 10:43 AM (post 8 week celebration) video](https://photos.app.goo.gl/AirzToyGyjzS5ghG6A)
 
-
 [5:54 PM wiggling continued](https://photos.app.goo.gl/VzKBFsBAtP5ahR4w6)
-
 
 #### Saturday 3/29
 
 Getting a good workout in
+
 ![](/assets/img/2021-03-28-00-35-44.png)
 ![](/assets/img/2021-03-28-00-35-56.png)
 
 Just gotta distract yourself
+
 ![](/assets/img/2021-03-28-00-36-10.png)
 
 [It's harder than this looks video](https://photos.app.goo.gl/SfD7XGiQerH24CmW9)
 
 My new chair came in!
+
 ![](/assets/img/2021-03-28-00-37-13.png)
 
 Overall, not impressed
+
 ![](/assets/img/2021-03-28-00-37-31.png)
 
 Sleep
+
 ![](/assets/img/2021-03-28-00-37-44.png)
