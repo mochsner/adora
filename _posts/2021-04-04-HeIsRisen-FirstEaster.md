@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "He Is Risen (/assets/img/2021)!"
+title: "He Is Risen"
 date: 2021-04-04
 ---
 
