@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Weeks 10-13: Move to Nashville!"
+title: "Weeks 10-13: Hello, Nashville!"
 date: 2021-05-02
 ---
 
@@ -76,7 +76,7 @@ Saying hello (and good-bye :( ) to my friends Meredith and Alan
 
 <img src="/assets/media/image62.png" />
 
-Sadly, we’ve decided that living in our one bedroom apartment and being so far away from friend and family is not the right decision at this time for us. I cry too much and don’t like to always eat my food, causing my mommy a lot of stress. Sorry mommy! My friends Alan and Meredith helped us pack up in one morning and we moved on down back to Tennessee.
+Sadly, we’ve decided that living in our one bedroom apartment and being so far away from friend and family is not the right decision at this time for us. I cry too much and don’t like to always eat my food, causing my mommy a lot of stress. Sorry mommy! My friends Alan and Meredith helped us pack up in one morning and we moved on down to Tennessee with Pops and GiGi for now!
 
 <img src="/assets/media/image61.png" />
 
