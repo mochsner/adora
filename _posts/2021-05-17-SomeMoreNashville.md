@@ -100,9 +100,6 @@ GiGi!
 Discovered carpet!
 ![](/assets/img/2021-05-18-05-34-59.png)
 
-Posing
-![](/assets/img/2021-05-18-05-35-10.png)
-
 Hello!
 ![](/assets/img/2021-05-18-05-35-47.png)
 
