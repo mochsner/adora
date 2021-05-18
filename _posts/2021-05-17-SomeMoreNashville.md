@@ -15,10 +15,10 @@ Starting in the beginning of May...
 ![](/assets/img/2021-05-18-05-12-58.png)
 
 and of course, the one time Dad sneezed and Adora hated it (lol)
-[](https://photos.app.goo.gl/TuZ4d5kDbGtXpcg39)
+[video](https://photos.app.goo.gl/TuZ4d5kDbGtXpcg39)
 
 Trying to find her thumb
-[](https://photos.app.goo.gl/jXnMpRyUQTojJS8Z7)
+[video](https://photos.app.goo.gl/jXnMpRyUQTojJS8Z7)
 
 Reading her favorite book
 ![](/assets/img/2021-05-18-05-15-06.png)
@@ -28,7 +28,7 @@ Mom placed me here :P
 
 Now stuck
 ![](/assets/img/2021-05-18-05-16-01.png)
-[](https://photos.app.goo.gl/sp4XXzL5bY8FpwRc9)
+[video](https://photos.app.goo.gl/sp4XXzL5bY8FpwRc9)
 
 Makin' faces
 ![](/assets/img/2021-05-18-05-17-02.png)
@@ -40,11 +40,11 @@ Learnin to stand better
 
 Playing with Jelly the Giraffe!
 ![](/assets/img/2021-05-18-05-19-08.png)
-[](https://photos.app.goo.gl/zEBbBDavaf4Am3yR8)
+[video](https://photos.app.goo.gl/zEBbBDavaf4Am3yR8)
 ![](/assets/img/2021-05-18-05-19-26.png)
 
 Tummy time (a rarer occurence nowadays)
-[](https://photos.app.goo.gl/X1NBgxev6R7dGY2j8)
+[video](https://photos.app.goo.gl/X1NBgxev6R7dGY2j8)
 ![](/assets/img/2021-05-18-05-21-01.png)
 
 ### Nashville Pediatrician Visit
@@ -62,10 +62,10 @@ That was... too much!
 
 ### Rest of week (Thursday - Saturday since Sunday was Mothers' Day)
 Eating my best friend, because that's what babies do!
-[](https://photos.app.goo.gl/vcegr6hvJGhtTGV59)
+[video](https://photos.app.goo.gl/vcegr6hvJGhtTGV59)
 
 Following the Noggin stick!
-[](https://photos.app.goo.gl/iTeVrNou2cKcxtKcA)
+[video](https://photos.app.goo.gl/iTeVrNou2cKcxtKcA)
 
 Cuddles!!
 ![](/assets/img/2021-05-18-05-26-28.png)
@@ -75,7 +75,7 @@ After my first swim!
 ![](/assets/img/2021-05-18-05-29-07.png)
 
 Kickin' like I do
-[](https://photos.app.goo.gl/4Be24JkfpUoMdBNx8)
+[video](https://photos.app.goo.gl/4Be24JkfpUoMdBNx8)
 ![](/assets/img/2021-05-18-05-30-47.png)
 
 Da Family
@@ -120,7 +120,7 @@ Pulled in some backup!
 
 Got the sneezles
 
-[](https://photos.app.goo.gl/NPPznaPLEcxTBzcD7)
+[video](https://photos.app.goo.gl/NPPznaPLEcxTBzcD7)
 ![](/assets/img/2021-05-18-05-38-08.png)
 
 Jelly the Giraffe
@@ -134,7 +134,7 @@ Jelly the Giraffe
 ![](/assets/img/2021-05-18-05-40-02.png)
 ![](/assets/img/2021-05-18-05-39-41.png)
 
-[](https://photos.app.goo.gl/FGEKeeYmjd2TwxCy8)
+[video](https://photos.app.goo.gl/FGEKeeYmjd2TwxCy8)
 
 ![](/assets/img/2021-05-18-05-41-01.png)
 ![](/assets/img/2021-05-18-05-41-15.png)
